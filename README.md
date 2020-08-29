@@ -1,1 +1,2 @@
-![paretroplus](https://user-images.githubusercontent.com/8885202/91628534-816bea00-e975-11ea-8333-9aa6ee437ca9.JPG)
+
+![paretroplus](https://user-images.githubusercontent.com/8885202/91628607-330b1b00-e976-11ea-9591-13d79f6b616d.JPG)
