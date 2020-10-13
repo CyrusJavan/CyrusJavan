@@ -1,2 +1,1 @@
-
-![paretroplus](https://user-images.githubusercontent.com/8885202/91628607-330b1b00-e976-11ea-9591-13d79f6b616d.JPG)
+![1st_place_2010_ada_aquascape_competition](https://user-images.githubusercontent.com/8885202/95878215-d5663e80-0d29-11eb-91cf-cce53065cf66.jpg)
